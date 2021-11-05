@@ -1,4 +1,5 @@
 > "There’s More to Life Than Money." - André Kostolany
+> 
 > "편안한 투자라 없다." - 강환국 작가
 
 # Quant
